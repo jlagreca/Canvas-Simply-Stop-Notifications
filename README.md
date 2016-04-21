@@ -1,0 +1,1 @@
+# Canvas-Simply-Stop-Notifications
